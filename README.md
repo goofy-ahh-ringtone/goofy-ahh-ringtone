@@ -1,4 +1,4 @@
-### Hi there 👋
+# Hi there 👋
 
 Welcome to [@joejo-joestar's](https://github.com/joejo-joestar) alt account
 
